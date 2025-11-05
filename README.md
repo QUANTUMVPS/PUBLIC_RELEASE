@@ -96,7 +96,7 @@ Core stack includes:
 ## 📞 Contact & Support
 
 📬 **Telegram Support:** [@H13kM1N](https://t.me/H13kM1N)  
-📧 **Email (for educational inquiries):** support@quantumvps.edu  
+📧 **Email (for educational inquiries):** COMPUTERQUANTUM83@GMAIL.COM  
 ## BUY NOW
 ## DARKWEB LINK
 ---  `http://ed6kqhopo2tyxhd4ru34j4fdrtcdjjmr3fo3wixm7ur72k5gpmhig7qd.onion/site/quantum`
